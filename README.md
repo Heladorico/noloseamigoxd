@@ -1,0 +1,2 @@
+# noloseamigoxd
+Soy macho
